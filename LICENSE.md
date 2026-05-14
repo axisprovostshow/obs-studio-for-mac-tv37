@@ -1,4 +1,4 @@
-# 
+# Get the ultimate OBS Studio for macOS effect with OBS Studio for macOS top Effect: subtitle-generator & voice-enhancement. Featuring subtitle-generator and voice-enhancement, it's
 
 
 
